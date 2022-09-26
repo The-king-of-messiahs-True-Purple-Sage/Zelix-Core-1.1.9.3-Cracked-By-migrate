@@ -4,3 +4,5 @@ Zelix-Core-1.1.9.3-Cracked-By-migrate
 I can use jvav to crack the cow world client مرحبا ، أنا ضوء القمر بوديساتفا ، ملك المسيح ، الأرجواني المقدسة سوف تستخدم jvav الكراك البقرة العالم العميل
 
 别急 migrate 大神正在下楼拿快递
+
+不要使用你们高贵的ALL Demo 混淆器了 
